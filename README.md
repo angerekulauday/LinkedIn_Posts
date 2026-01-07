@@ -1,3 +1,7 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_structural-deflection-deformation-sensors-activity-7414503961380102144-yyi9?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_geotechnical-foundation-testing-activity-7414502880558284800-rWFr?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_networkmonitoring-environmentalmonitoring-activity-7413357367884587008-YNxR?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_datacenter-powermanagement-coolingsolutions-activity-7413358023189966848-IS23?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
