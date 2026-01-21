@@ -1,3 +1,9 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmentalmonitoring-climatetech-riskdetection-share-7419864558657478657-6SUB?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmentalmonitoring-electricaltesting-share-7419522791135342592-aAoh?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_waterquality-environmentalcompliance-watermonitoring-share-7419521135551258624-l5ma?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_structural-deflection-deformation-sensors-activity-7414503961380102144-yyi9?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_geotechnical-foundation-testing-activity-7414502880558284800-rWFr?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
