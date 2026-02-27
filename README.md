@@ -1,3 +1,5 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_smartcities-urbaninnovation-iot-share-7432937121910509568-2TOw?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmentalmonitoring-airquality-facilitysafety-share-7428605960576815104-lZUy?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_airquality-environmentalhealth-safetymonitoring-share-7427948387876085760-oW0E?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
