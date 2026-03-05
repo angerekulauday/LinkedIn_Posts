@@ -1,3 +1,7 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_thermalimaging-infraredcamera-industrialsafety-share-7435169458425483264-gBsd?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmentalmonitoring-telemetry-iot-share-7435168110149791744-YMng?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_ecology-fieldscience-ecologicalassessment-share-7434463672011276288-oulx?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_iot-hardware-and-systems-for-advanced-manufacturing-share-7433947590674640896-v9Qa?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
