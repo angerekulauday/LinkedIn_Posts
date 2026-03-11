@@ -1,3 +1,11 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_weathertechnology-climatedata-environmentalmonitoring-share-7437521033773027328-3h17?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_vibrationmonitoring-acousticengineering-industrialautomation-share-7437520562547163136-JMqS?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_radiationsafety-nuclearindustry-radiationdetection-share-7437519957682466819-67Qx?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmentalstewardship-emissionscompliance-share-7437519356269334528-Npig?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_thermalimaging-infraredcamera-industrialsafety-share-7435169458425483264-gBsd?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmentalmonitoring-telemetry-iot-share-7435168110149791744-YMng?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
