@@ -1,3 +1,13 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_thermalmeasurement-temperaturemonitoring-share-7442277643582042112-mO-H?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_acoustictesting-noiseanalysis-soundengineering-share-7442277148255674368-I1l1?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_vibrationanalysis-predictivemaintenance-industrialmonitoring-share-7442275299771215873-wsG0?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_displacementmeasurement-deformationanalysis-share-7442274654867800064-PdcI?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_stressanalysis-strainmeasurement-mechanicaltesting-share-7442273117680377857-zTAd?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_weathertechnology-climatedata-environmentalmonitoring-share-7437521033773027328-3h17?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_vibrationmonitoring-acousticengineering-industrialautomation-share-7437520562547163136-JMqS?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
