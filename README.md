@@ -1,3 +1,5 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_physicallayer-networkengineering-hardwaresystems-share-7443139995483316224-RgHr?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_thermalmeasurement-temperaturemonitoring-share-7442277643582042112-mO-H?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_acoustictesting-noiseanalysis-soundengineering-share-7442277148255674368-I1l1?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
