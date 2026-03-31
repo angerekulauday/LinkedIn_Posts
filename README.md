@@ -1,3 +1,9 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_networkoptimization-itperformance-latencyreduction-share-7444791155361427456-bUbW?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_fiber-optic-testing-solutions-share-7444790644813983744-NIaS?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_networktesting-itinfrastructure-networkperformance-share-7444790022987390976-w8aW?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_advanced-thermal-and-environmental-testing-share-7444747470405902337-p19q?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_electricaltesting-powersystems-datacenters-share-7444453607720194049-1ucK?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
