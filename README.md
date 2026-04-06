@@ -1,3 +1,5 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_datacentermonitoring-environmentalmonitoring-share-7446950457593462784-CQ90?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_electromagneticinterference-emi-signalintegrity-share-7445850126511828992-zMRR?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_pro-data-benchmark-activity-7445502663087071242-ZyzQ?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
