@@ -1,3 +1,7 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_home1-share-7449465396950364160-era1?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_iot-in-amusement-parks-sports-and-entertainment-share-7449460987113664512-1sp6?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_nbiot-lpwan-iotconnectivity-share-7447656400652210177-09JP?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_cellulartechnology-5g-wirelessconnectivity-share-7447309442129506305-6-hq?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
