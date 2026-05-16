@@ -1,3 +1,9 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_home-share-7461474238902931456-clpH?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_home-share-7461473361353687040-QzIR?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmental-testing-instruments-agro-share-7461472512497831936--VhG?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_healthyspaces-airquality-wellness-share-7450531653245902851-eyxw?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_smart-environmental-testing-monitoring-share-7450530672382971904-Aj4E?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
