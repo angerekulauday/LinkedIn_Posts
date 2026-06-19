@@ -1,3 +1,5 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_structuralmonitoring-engineering-infrastructure-share-7473550191808376832-PXCE/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_home-share-7471978959019331584-mCEA/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_environmental-finance-and-insurance-enviro-share-7471978506692829186-T57-/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
