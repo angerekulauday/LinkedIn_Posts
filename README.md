@@ -1,3 +1,9 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_smart-city-solutions-smarter-cities-with-share-7478859349633929216-JqB9/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_industrialiot-lpwan-smartoperations-share-7478858812255334402-zkIi/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_iot-in-amusement-parks-sports-and-entertainment-share-7478858071620931584-sEna/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_the-future-of-entertainment-venues-wont-share-7477822285488316416-fj9x/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_a-utility-company-had-thousands-of-water-share-7477442263749455872-RRrZ/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
