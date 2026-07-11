@@ -1,3 +1,5 @@
+https://www.linkedin.com/posts/uday-angerekula-5b2b88244_alumetraai-aluminummanufacturing-industrialiot-share-7481733734249963520-dfP4/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
+
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_home-share-7481136904969662464-qxoe/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
 
 https://www.linkedin.com/posts/uday-angerekula-5b2b88244_avionetraai-aerospacemanufacturing-industrialai-share-7481135960831733761-Hpw2/?utm_source=share&utm_medium=member_desktop&rcm=ACoAADyvxVYBrMLVuP6LnoaMrpmIXr9ONCPvJgw
